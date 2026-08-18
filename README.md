@@ -131,7 +131,7 @@ Govt. PU College, Kombettu
 
 📧 Email: sahalmuhammad002@email.com
 
-💼 LinkedIn: linkedin.com/in/muhammad-sahal-2bb6a938
+💼 LinkedIn: https://www.linkedin.com/in/muhammad-sahal-2bb6a9385
 
 🌐 Portfolio:https://mdsahalportfolio.netlify.app
 
